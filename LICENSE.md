@@ -1,0 +1,1 @@
+Any edition should be held only given the permission of the owner
